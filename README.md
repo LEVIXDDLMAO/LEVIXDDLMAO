@@ -1,5 +1,7 @@
  Hey Levi here
  
+ OH AND STOP FUCKING FORKING MY SHIT WITH OUT ASKING OR USING ON YOUR WEBSITE YEAH IM TALKING ABOUT YOU https://sites.google.com/site/fnfunblocked/games NO MORE JUST ASK LIKE GOD DAMN
+ 
  I like FNF Im a male 
  
  im making a fnf engine called Funked engine 
