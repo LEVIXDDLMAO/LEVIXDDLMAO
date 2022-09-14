@@ -4,6 +4,8 @@
  
  I like FNF Im a male 
  
+ ( I am not gay but bi :D Dont think im gay when i go <3 It just means i like you and i wanna be your best friend :DD
+ 
  im making a fnf engine called Funked engine 
  
  I kinda port fnf mods lol
@@ -15,7 +17,7 @@
  
  @Dominicthecodingenuis 
  
- ### my home tbh
+ ### Dude this man is the fucking best <3 :D
   - @Memehoovy
   
  
