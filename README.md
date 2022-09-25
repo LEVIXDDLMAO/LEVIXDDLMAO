@@ -1,24 +1,21 @@
- Hey Levi here
- 
- OH AND STOP FUCKING FORKING MY SHIT WITH OUT ASKING OR USING ON YOUR WEBSITE YEAH IM TALKING ABOUT YOU https://sites.google.com/site/fnfunblocked/games NO MORE JUST ASK LIKE GOD DAMN
- 
- I like FNF Im a male 
- 
- ( I am not gay but bi :D Dont think im gay when i go <3 It just means i like you and i wanna be your best friend :DD
- 
- im making a fnf engine called Funked engine 
- 
- I kinda port fnf mods lol
- 
- The team is (Funked Engine )
- 
- 
- @SanicBTW
- 
- @Dominicthecodingenuis 
- 
- ### Dude this man is the fucking best <3 :D
-  - @Memehoovy
-  
- 
+Yo levi here :D
+ I am a FNF stan ( lol not a bad and werid one tho ) 
+please do not fork my shit or i will leak your ip :/ idgaf who you are just please dont fork or steal my shit
+
+## I work on 4 or 5 things rn 
+- Funked Engine ( havent did anything to funked )
+- Swag Engine ( Better then funked )
+- Indie Cross PE port
+- Sonic.EXE 3.0 PE port
+- Modified Psych Engine
+## Things i need to update
+- Funked Engine 
+- Indie Cross PE port
+- Sonic.exe port
+## friends
+memehoovy
+sanicBTW
+Dom
+## SEE YA
+
  ![FUNNY_RAPPING](https://user-images.githubusercontent.com/92174516/166082282-9728574b-29b1-40fe-8808-b876e98473fc.gif)
