@@ -3,13 +3,12 @@
 please do not fork my shit or i will leak your ip :/ idgaf who you are just please dont fork or steal my shit
 
 ## I work on 4 or 5 things rn 
-- Funked Engine ( havent did anything to funked )
 - Swag Engine ( Better then funked )
 - Indie Cross PE port
 - Sonic.EXE 3.0 PE port
 - Modified Psych Engine
 ## Things i need to update
-- Funked Engine 
+- Funked Engine ( maybe )
 - Indie Cross PE port
 - Sonic.exe port
 ## friends
