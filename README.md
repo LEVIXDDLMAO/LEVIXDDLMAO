@@ -7,13 +7,14 @@ please do not fork my shit or i will leak your ip :/ idgaf who you are just plea
 - Indie Cross PE port
 - Sonic.EXE 3.0 PE port
 - Modified Psych Engine
+- Infinity Engine ( better then swag and funked engine these are my engine ) 
 ## Things i need to update
 - Funked Engine ( maybe )
 - Indie Cross PE port
 - Sonic.exe port
 ## friends
-- memehoovy
-- sanicBTW
+- Memehoovy
+- SanicBTW
 - Dom
 ## SEE YA
 
