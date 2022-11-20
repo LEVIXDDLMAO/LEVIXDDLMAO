@@ -1,4 +1,4 @@
-## Yo levi here :D
+## Yo Levi Here
  I am a FNF stan ( lol not a bad and werid one tho ) 
 please do not fork my shit or i will leak your ip :/ idgaf who you are just please dont fork or steal my shit
 
@@ -13,9 +13,9 @@ please do not fork my shit or i will leak your ip :/ idgaf who you are just plea
 - Indie Cross PE port
 - Sonic.exe port
 ## friends
-- Memehoovy
-- SanicBTW
-- Dom
+- [Dom](https://github.com/Dominicthecodingenuis) 
+- [MemeHoovy](https://linktr.ee/memehoovy) 
+- [SanicBTW](https://github.com/SanicBTW) 
 ## SEE YA
 
  ![FUNNY_RAPPING](https://user-images.githubusercontent.com/92174516/166082282-9728574b-29b1-40fe-8808-b876e98473fc.gif)
