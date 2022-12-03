@@ -1,4 +1,4 @@
-## Yo Z / Levi Here
+## Yo Kade / Z / Levi Here
  I am a FNF stan ( lol not a bad and werid one tho ) 
  please do not fork my shit or i will leak your ip :/ idgaf who you are just please dont fork or steal my shit UNLESS ASKED
  I code alot dont judge
