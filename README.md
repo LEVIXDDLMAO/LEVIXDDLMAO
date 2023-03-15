@@ -3,7 +3,7 @@ I am an FNF stan not one of thoese werid ones who make bad things
 
 makes nerdy things
 
-I simp for Nene and Sarv <3 // they are too cute
+I simp for Nene and Sarv, Angel GF <3 // they are too cute
 
 taken by an amazing woman <333
 ## I work on tons of things rn // please take your time with me i am slow
