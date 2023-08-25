@@ -3,7 +3,6 @@ I am an FNF stan not one of thoese werid ones who make bad things
 
 makes nerdy things
 
-Tomika Giyuu :D
 ## I work on tons of things rn // please take your time with me i am slow
 - Indie Cross PE port
 - Infinity Engine ( better then swag and funked engine these are my engine ) 
